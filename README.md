@@ -23,4 +23,4 @@
 </div>
 <br/>
 
-### Busco sempre me desenvolver e aprender. Sempre aberto a novas opotunidades!
+### Busco me desenvolver e aprender. Sempre aberto a novas opotunidades!
